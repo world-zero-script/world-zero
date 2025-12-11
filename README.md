@@ -12,7 +12,8 @@ Whether you're grinding levels, raiding tough dungeons, unlocking new classes, o
 
 ---
 ## 🔥 Why Choose This World Zero Script?
-<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/example-worldzero-image.jpg" />
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/a2640afa-51ac-4c68-b35d-c07a10331ff1" />
+
 
 The **best world zero script 2025** is designed for serious RPG players in Roblox World // Zero. Skip the endless grinding and outdated tools—this **world zero script no key** version stands out with clean, reliable performance.
 
